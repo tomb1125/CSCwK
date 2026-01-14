@@ -1,0 +1,2 @@
+
+Alcybiades wbrew swojemu imieniu, jest człowiekiem wielu czynów i niewielu słów. Wybrał tez bardzo dobry po temu zawód- prywatnego detektywa- gdzie zacięta twarz i małomówność są wręcz oczekiwane przez klientów.  Kiedy przyjmuje ich w swoim kiepsko oświetlonym biurze przy Bow Street, widzi że czują się niemalże jak w filmie. Przez chwilę nawet rozważał noszenie fedory, ale co za głupek siedzi w kapeluszu we wnętrzach. Alcybiades milczy nie z braku inteligencji, lecz ze strachu przed przegapieniem sznurków.
