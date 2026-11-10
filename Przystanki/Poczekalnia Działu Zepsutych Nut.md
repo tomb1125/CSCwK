@@ -28,6 +28,7 @@ Dwóch mężczyzn siedziało na ławce w parku i rzucało chleb kaczkom. Czynno�
 "I nie jest do cholery jasnej. Za kogo Ty mnie masz. Za kogo Ty masz siebie?" - Stary zanosi się kaszlem i to go trochę uspokaja - "Wszystko jest niebezpieczne ale to będzie dla Ciebie dobry test. Byli tacy, którzy próbowali się wkraść do biur za recepcją. Teraz już ich nie ma z nami. Był też taki, który twierdził, że zdobył numer recepcjonistki. Ale Grupa Eskulapa dawno już porasta kwiatami na polach Elizjum i nie wiem czy to była prawda. To jest wiedza którą przekazuję Tobie, przyjdzie czas kiedy będziesz mógł ją wykorzystać. Wziąć cukierek z kontuaru. Uczesać się przed lustrem w toalecie między światami, haha."
 
 "haha okej"
+
 "okej"
 
 "..."
