@@ -11,8 +11,11 @@ Dwóch mężczyzn siedziało na ławce w parku i rzucało chleb kaczkom. Czynno�
 
 
 "I co dalej?"
+
 "Jak to co dalej, to już."
+
 "Już?"
+
 "Już. Nie jesteś gotowy na 'jeszcze'. I nie rozumiesz. To miejsce, gdzie przecina się wiele ścieżek z wielu wektorów. Wystarczy, że przejrzysz magazyny rzucone na szklany stolik. Daty z przyszłości, fraktalne sigile na ostatniej stronie wrzucone jak śmieszny obrazek z kotem, czasami pułapki memetyczne... fakt. Albo nawet zwykła rozmowa z innym czekającym na skórzanej kanapie. Oni zwykle są umówieni i nie masz dużo czasu zanim recepcjonistka wywoła ich imie i znikną gdzieś w środku budynku. Ale nawet kilka minut rozmowy z mieszkańcem Pryzmatu lub Czarnych Term da Ci wiele wskazówek. To okazja, brama dalej, jeśli tylko będziesz umiał z niej ostrożnie korzystać. Kiedyś poznałem imię demona statycznego, z samego słuchania rozmów telefonicznych recepcjonistki. Ona też nie pochodzi stąd." - na chwilę podnosi swój monotonny ton. Łatwo traci cierpliwość i jedna z kaczek, która nie je chleba ale wpatruje się w nich jak zaczarowana, aktywuje jego paranoję.
 
 
